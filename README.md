@@ -96,5 +96,5 @@ Syntax:
 |[Habeeb B. Oyesile](https://twitter.com/badbatunde)| Happy Birthday Eddie. Cheers to greater heights.|                                                                                                                                                                                      
 |[Real Solly M](https://twitter.com/realsollym)|Happy Birthday Eddie! Wish you the best things in life. Continue to be an inspiration to others as you have been to me. |
 |[Vinyl Davyl](https://twitter.com/Vinylchi)| Happy birthday, Eddie! Highly appreciate what you do with the community, Big Amen to your secret prayers✨|
-|||
+|[Ayush lohmod](https://twitter.com/ayushlohmod) Happy birthday, Eddie(Teacher)||
 
